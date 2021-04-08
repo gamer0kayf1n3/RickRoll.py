@@ -10,7 +10,7 @@ This script is useful if:
 4. Possibilities are endless, my friend.
 
 > Now go download
-> The file and rickroll them!
+> the file and rickroll them!
 > -Rick Astley
 
 I'm just kidding.
